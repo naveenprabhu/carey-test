@@ -1,1 +1,1 @@
-Welcome to Carey 360
+Welcome to Carey 360. Thank you
